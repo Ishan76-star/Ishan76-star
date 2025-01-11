@@ -1,7 +1,7 @@
 🥳- 👋 Hi, I’m @Ishan76-star
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning Python
-- 💞️ I’m looking to collaborate on nothing
+- 🫱🏽‍🫲🏻 I’m looking to collaborate on nothing
 - 📫 How to reach me email to jindmaa@gmail.com
 - 😄 Hi
 - ⚡ Fun fact:There is 50% chance that 2 people will share a birthday in a group of 25 .
