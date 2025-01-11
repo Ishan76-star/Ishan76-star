@@ -1,6 +1,6 @@
 🥳- 👋 Hi, I’m @Ishan76-star
 - 👀 I’m interested in coding
-- 🌱 I’m currently learning java script
+- 🌱 I’m currently learning Python
 - 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me email to jindmaa@gmail.com
 - 😄 Hi
